@@ -1,0 +1,1 @@
+# Advanced-System-Optimizer-3.82-Crack
